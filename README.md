@@ -1,2 +1,2 @@
 # manigga
-Ma nigga is nava
+Ma nigga is nava but she is ..
